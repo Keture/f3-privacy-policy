@@ -1,6 +1,3 @@
-Privacy Policy  
-----------------
-
 ### Introduction  
 Our privacy policy will help you understand what information we collect at *F3*, how *F3* uses it, and what choices you have.
 *F3Seafoods (Pvt) Ltd* built the *F3* app as a free app. This SERVICE is provided by *F3Seafoods (Pvt) Ltd* at no cost and is intended for use as is.
